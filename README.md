@@ -1,1 +1,1 @@
-kan alt
+jeg kan alt
